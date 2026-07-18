@@ -1,7 +1,7 @@
 <div align="center">
-<div align="center">
-  <img src="https://ibb.co/pqcrN1Y" width="100%">
+  <img src="https://ibb.co" width="100%">
 </div>
+
 # ༺ 𝓴𝓲𝓷𝓷𝓵𝓲𝓼𝓽 ༻
 
 </div>
