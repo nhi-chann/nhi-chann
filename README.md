@@ -1,6 +1,4 @@
 <div align="center">
-  <img src="https://ibb.co" width="100%">
-</div>
 
 # ༺ 𝓴𝓲𝓷𝓷𝓵𝓲𝓼𝓽 ༻
 
