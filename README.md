@@ -2,8 +2,6 @@
  
 ➸ᡣ𐭩𝓘𝑛𝑡𝑒𝑟𝑛𝑒𝑡 𝓪𝑛𝑔𝑒𝑙𐎀NHI⇪CHAN𖹭 
 
-`⊹ 𐔌 𝓲𝓷𝓽𝓳 𐦯 𝓼𝓹𝓼𝓸𝟛𝔀𝟜 𐔌 𝟛𝟝𝟙 𐦯 𝟙𝟞𝔂.𝓸 𐦯𓃠  ⊹ 𔐓melancholic-choleric 𐔌ВЛФЭ LIE┾ IAS 𐎀manif.5/1 anxious-avoidant[disorganized] 𔔁┋ lawful good𐎀neutral evil𔔁 ┋ PIASEC[holland] || TES[Eris Berne]𓍼::adapted child, rebellious child. ┋ Dark triad[psychology]::machiavellianism, narcrissim, psychopathy, racism**MANY**.∰ Plot Role:: Teagic Villain, The foil❦ ┋ VP[SVA]::Skin vector➸Visual Vector░ ┋ literary archetype:: Raskolnikov[dostoevsky] ┋ Tarot Aechetype𓆩♡𓆪➸ :: justice❦, reversed magician, tower⛓︎. ┋ TOTFH-ATC:: Contempt, Criticism, Stonewalling ┋ narcissistic injury ┋ jung's archetype:: innocent child, the destroyer ┋ HERETIC EXPLORER𔔁 || Hysteroid-eileptoid accentuation ┋ 𔐓Harvard Clascification of intelligence types(Howard Gardner) well
-developed:: Intrapersomal intelligence, interpersonal intelligence ╬⚘`𔔁
 # ༺ 𝓴𝓲𝓷𝓷𝓵𝓲𝓼𝓽 ❦༻
 
 </div>
@@ -112,6 +110,8 @@ developed:: Intrapersomal intelligence, interpersonal intelligence ╬⚘`𔔁
 <br>
 
 > 𓍢ִ໋ **(!important!)** *I don't care about any living thing, I don't care about norms of behavior. I hate every single one of them. OK??* **(!important!)** котеночек нелюсик:: 𓃠 
++тип.:: `⊹ 𐔌 𝓲𝓷𝓽𝓳 𐦯 𝓼𝓹𝓼𝓸𝟛𝔀𝟜 𐔌 𝟛𝟝𝟙 𐦯 𝟙𝟞𝔂.𝓸 𐦯𓃠  ⊹ 𔐓melancholic-choleric 𐔌ВЛФЭ LIE┾ IAS 𐎀manif.5/1 anxious-avoidant[disorganized] 𔔁┋ lawful good𐎀neutral evil𔔁 ┋ PIASEC[holland] || TES[Eris Berne]𓍼::adapted child, rebellious child. ┋ Dark triad[psychology]::machiavellianism, narcrissim, psychopathy, racism**MANY**.∰ Plot Role:: Teagic Villain, The foil❦ ┋ VP[SVA]::Skin vector➸Visual Vector░ ┋ literary archetype:: Raskolnikov[dostoevsky] ┋ Tarot Aechetype𓆩♡𓆪➸ :: justice❦, reversed magician, tower⛓︎. ┋ TOTFH-ATC:: Contempt, Criticism, Stonewalling ┋ narcissistic injury ┋ jung's archetype:: innocent child, the destroyer ┋ HERETIC EXPLORER𔔁 || Hysteroid-eileptoid accentuation ┋ 𔐓Harvard Clascification of intelligence types(Howard Gardner) well
+developed:: Intrapersomal intelligence, interpersonal intelligence ╬⚘`𔔁
 
 <div align="center">
 ─── ⋆⋅☆⋅⋆ ── 𓏲ּ ֶָ 𓆩✖𓆪 𓏲ּ ֶָ ── ⋆⋅☆⋅⋆ ──
