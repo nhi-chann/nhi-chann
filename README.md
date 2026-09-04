@@ -6,24 +6,7 @@
 
 </div>
 
-* 𐔌 **Mikado** || **Zurich** `[Kasurich]`
-* 𐔌 **Muu** `[Milgram]`
-* 𐔌 **Mizi** || **Ivan** `[Alnst||Zombie ST]`
-* 𐔌 **FB** `[Everything but your life]`
-* 𐔌 **Towa** `[SlowDm]`
-* 𐔌 **Eichi** `[EnStar]`
-* 𐔌 **Sunday** || **Sparkle** `[HSR]`
-* 𐔌 **Asa** || **Reze** `[CM]`
-* 𐔌 **Satanika** || **syakesan** `[Okegom]`
-* 𐔌 **Yuno Gasai**
-* 𐔌 **Kotonoha**
-* 𐔌 **PunPun** || **Aiko** `[Oyasumi PunPun]`
-* 𐔌 **Koume** || **Isobe** `[Umibe No Onnanoko]`
-* 𐔌 **Kei** `[Sakura No Uta]`
-* 𐔌 **Saya**
-* 𐔌 **Kiyoteru** !!just fav!!
-* 𐔌 **Light** || **Misa** `[DN]`
-* 𐔌 **Akechi** `[P5/P5R]`❦ !!CHIEF KINN!!
+* [[𐔌 **Akechi** `[P5/P5R]`❦ !!CHIEF KINN!!]]
 * 𐔌 **Shuichi** || **Nagito** `[DGR3/2]`
 * 𐔌 **DTK** `[Soul Eater]`
 * 𐔌 **Satoru** `[Ranfren]`
@@ -43,6 +26,24 @@
 * 𐔌 **Agnes Tachyon** `[Umamusume]`
 * 𐔌 **Nezumi** `[no.6]`
 * 𐔌 **Ramiella** || **vivian** || **e shunguang** || **Jane Doe** `[Zenless zone zero]`
+* 𐔌 **Mikado** || **Zurich** `[Kasurich]`
+* 𐔌 **Muu** `[Milgram]`
+* 𐔌 **Mizi** || **Ivan** `[Alnst||Zombie ST]`
+* 𐔌 **FB** `[Everything but your life]`
+* 𐔌 **Towa** `[SlowDm]`
+* 𐔌 **Eichi** `[EnStar]`
+* 𐔌 **Sunday** || **Sparkle** `[HSR]`
+* 𐔌 **Asa** || **Reze** `[CM]`
+* 𐔌 **Satanika** || **syakesan** `[Okegom]`
+* 𐔌 **Yuno Gasai**
+* 𐔌 **Kotonoha**
+* 𐔌 **PunPun** || **Aiko** `[Oyasumi PunPun]`
+* 𐔌 **Koume** || **Isobe** `[Umibe No Onnanoko]`
+* 𐔌 **Kei** `[Sakura No Uta]`
+* 𐔌 **Saya**
+* 𐔌 **Kiyoteru** !!just fav!!
+* 𐔌 **Light** || **Misa** `[DN]`
+
 <div align="center">
 
 𓏲ּ ֶָ ─── ♰ ─── 𓏲ּ ֶָ
@@ -51,7 +52,7 @@
 
 </div>
 
-〬〬➥ ` Over 20 𓆩♡𓆪[with exceptions] ` ⚔︎ ` Akechi fans ☠` ⚔︎ ` Ignoring [maybe] 𓆩✖𓆪 ` ⚔︎ ` Indifference ` ⚔︎ ` Escapism ` ⚔︎ ` ALL .  affecting parents . large social circle . T-persons constantly talking about this . excesses of previous years . attempts to humiliate . under 13 . ❦`𔔁 People࿏⚔︎ ::  NO ONE. love everyone♥︎ ╬ [ch] `░ there is a HUGE chance that I have not indicated someone. It's worth keeping in mind that I don't want to have any contact with these people; there's no hatred. I also ask that these people's friends and acquaintances not write to me.❦░  `
+〬〬➥ ` Over 20 𓆩♡𓆪[with exceptions] ` ⚔︎ ` Akechi fans ☠` ⚔︎ ` Ignoring [maybe] 𓆩✖𓆪 ` ⚔︎ ` Indifference ` ⚔︎ ` Escapism ` ⚔︎ ` ALL .  affecting parents . large social circle . T-persons constantly talking about this . excesses of previous years . attempts to humiliate . under 13 . ❦`𔔁 People࿏⚔︎ ::  NO ONE. love everyone♥︎ ╬ [ch] `░ there is a HUGE chance that I have not indicated someone. It's worth keeping in mind that I don't want to have any contact with these people; there's no hatred. I also ask that these people's friends and acquaintances not write to me.❦░  ` [[сюда ВХОДИТ база на уровне аморальности поступков. если я что либо не добавил, это не значит, что я одобряю те или иные странности]]
 
 <div align="center">
 
