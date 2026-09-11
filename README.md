@@ -1,6 +1,6 @@
 <div align="center">
  
-➸ᡣ𐭩𝓘𝑛𝑡𝑒𝑟𝑛𝑒𝑡 𝓪𝑛𝑔𝑒𝑙𐎀NHI⇪CHAN𖹭 
+➸ᡣ𐭩𝓘𝑛𝑡𝑒𝑟𝑛𝑒𝑡 𝓪𝑛𝑔𝑒𝑙𐎀AUTHOR OF THIS REPOSTORY𖹭 
 
 # ༺ 𝓴𝓲𝓷𝓷𝓵𝓲𝓼𝓽 ❦༻
 
